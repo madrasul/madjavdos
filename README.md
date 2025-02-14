@@ -1,2 +1,2 @@
 # madjavdos
-Davlatov Matrasul, Nurmuhamadov Javohirbek, Doston Saparbayev 
+Davlatov Matrasul, Nurmuhammadov Javohirbek, Doston Saparbayev 
